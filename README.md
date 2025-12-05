@@ -1,0 +1,1 @@
+# Tugas10_RasyilaFuziaWahyuni552010125012.py
